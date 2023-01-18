@@ -1,4 +1,4 @@
-# Lina Fjodorova - civil engeneering project examples
+# Lina Fjodorova - civil engineering project examples
 
 Click on preview pictures to download full size documents.
 
